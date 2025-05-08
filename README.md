@@ -1,5 +1,5 @@
 - 👋 Hi visitor, I’m Pritam Pal .
-- 🌱 All in for interesting and challenging opportunities .
+- 🌱 All in for interesting and challenging opportunities in the field of Devops.
 - 💞️ I’m looking to collaborate on projects that are dynamic and fun .
 - 📫 You can reach me on the below links .  
        1. ## 🌎 [LinkedIn](https://www.linkedin.com/in/pritampal1/)      
