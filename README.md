@@ -5,7 +5,7 @@
        1.  🌎 [LinkedIn](https://www.linkedin.com/in/pritampal1/)      
        2.  📧 [Email](pal.pritam1416131@gmail.com)
   
-Don't know. Now you know ✌️🤟
+Don't know. Now you know 🦅🤟
      
 
 <!---
